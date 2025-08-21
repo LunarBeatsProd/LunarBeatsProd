@@ -3,7 +3,7 @@
 - 👀 I’m interested in Code, gaming, reading, swimming, nature, making music.
 - 🌱 I’m soon learning either Java ☕️ or Golang 💙!
 - 💞️ I’m looking to make some techie friends along my journey 🥰
-- 📫 How to reach me: Discord: ilylunaa_
+- 📫 How to reach me: Discord: meowpear_
 - 😄 Pronouns: 🏳️‍⚧️ She/Her 🏳️‍⚧️
 - ⚡ Fun fact: I'm also a verified Spotify artist at [ilyLuna](https://open.spotify.com/artist/149ovLrninF8hp2zUDUqhv)
 - 🕒 Timezone: GMT +1, The Netherlands, EU.
